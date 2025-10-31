@@ -31,7 +31,7 @@ Key topics covered include:
 
 ## 📜 Certificate
 
-You can view my course completion certificate [here](https://coursera.org/share/your-certificate-link-here)
+You can view my course completion certificate [here](https://coursera.org/share/b72012803edc49a8fe064a0498699d6c)
 
 ---
 
